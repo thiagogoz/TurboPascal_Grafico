@@ -1,5 +1,10 @@
-Qualquer dúvida entrem em contato, se for possível eu posso dar uma mão...
+08/11/2018
+Utilizar o DOSBox para executar os programas. 
 
-Thiago de Góz Ferreira (Þ¥G®)
+
+12/05/2000
+Qualquer dÃºvida entrem em contato, se for possÃ­vel eu posso dar uma mÃ£o...
+
+Thiago de GÃ³z Ferreira (ÃžÂ¥GÂ®)
 ICQ: 98166259
 thiagocanoas@tutopia.com.br
